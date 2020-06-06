@@ -1,2 +1,2 @@
 # Cogito
-献给宋徽宗
+To my LOVE.
