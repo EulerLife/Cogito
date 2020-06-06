@@ -1,2 +1,2 @@
 # Cogito
-To my LOVE.
+To my LOVE
